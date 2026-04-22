@@ -1,4 +1,20 @@
-[![-----------------------------------------------------](https://raw.githubusercontent.com/andreasbm/readme/master/assets/lines/colored.png)](#table-of-contents)
+.pushkontakFT CS FRESH 👇
+`SALDO SISA. 2k-5K? MASUK GB FT VALZ`
+
+GB 1
+https://chat.whatsapp.com/Cz2r8jdWcgM4nVN0BKLOac?mode=hqctcla
+
+ALL INFO FT DI SALURAN
+https://whatsapp.com/channel/0029VbC8bcL002TG78NnOS04
+
+`250 MEM DAGET 10K`
+
+*GA DAPET MUSUH?, MASUK SINI AJA JAMIN SELALU OPEN DAN MUSUH BOT BOT*
+⭕```ADMIN FAST RESPON```
+⭕```ALL MUSUH BOT```
+⭕```PAYMENT ALL PAY```
+⭕```FULL FT CS ONLY``
+*GAS LEK JOIN DAPET*[![-----------------------------------------------------](https://raw.githubusercontent.com/andreasbm/readme/master/assets/lines/colored.png)](#table-of-contents)
 
 # 🤖 PUSH KONTAK
 
